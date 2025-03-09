@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Soulo21
 - 👀 I’m interested in Astronomy and Programming 
 - 🌱 I’m currently learning AI/ML and Data Analytics
-- 📫 How to reach me @mail - sounakkundy2003@gmail.com
+- 📫 How to reach me @mail - sounakkundu2003@gmail.com
 - 😄 Pronouns: he/him
   
 
